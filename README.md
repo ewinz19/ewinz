@@ -1,2 +1,2 @@
 # jhon-bratva
-host pubji  globak
+tuan rumah pubji global
